@@ -1,0 +1,1 @@
+Tugas Mini Project Mata Kuliah PEMBELAJARAN SECARA STATISTIK DAN OPTIMISASI oleh Bagus Angkasa dengan NIM 201012320035
